@@ -13,7 +13,7 @@
 
 
 <p align="center">$\color{#ebcd84}{\textsf{੭୧ sign ata :d ↓}}$
-<p align="center"> ‎<a href="https://gixbusok.straw.page/](https://michagoose.atabook.org/">. ୨ atabook ୧ .</a>
+<p align="center"> ‎<a href="https://michagoose.atabook.org/">. ୨ atabook ୧ .</a>
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=mishaburgerking&color=493632&label=zero+day+:3)
