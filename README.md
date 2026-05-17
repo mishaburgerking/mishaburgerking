@@ -16,7 +16,7 @@
 <p align="center"> ‎<a href="https://gixbusok.straw.page/](https://michagoose.atabook.org/">. ୨ atabook ୧ .</a>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=mishaburgerking&color=493632&label=zero+day+:3)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=mishaburgerking&color=493632&label=zero+day+:3)
 
 
 <p align="center"> $\color{#ebcd84}{\textsf{i LLOOOOVEEE zero day -w-}}$
