@@ -1,16 +1,15 @@
-## Hi there 👋
+<p align="center">heyooo
+  
+<p align="center">Misha / Goose !! 17 y.o
+  
+<p align="center"> 15- dniuf or dniuid ok? ok
 
-<!--
-**mishaburgerking/mishaburgerking** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> $\small\color{#ffffff}{\textsf{otherwise no dni, just don't be weird.}}$
 
-Here are some ideas to get you started:
+ㅤ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">sign ata :d
+<p align="center"> ссылка на атабук
+
+<p align="center"> <img width="1773" height="1232" alt="1000288272" src="https://github.com/user-attachments/assets/2643b83a-f5ee-41d3-a3d9-79f1d0a9cd95" />
+
