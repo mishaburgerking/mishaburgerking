@@ -17,7 +17,8 @@
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=mishaburgerkingY&color=f2a400&label=увуву)
+<p align="center">$\color{#ebcd84}{\textsf{sign ata :d}}$
+<p align="center"> ![](https://komarev.com/ghpvc/?username=mishaburgerkingY&color=f2a400&label=SPLIT)
 
 <p align="center"> i LLOOOOVEEE zero day -w-
 <p align="center"> <img width="1773" height="1232" alt="1000288272" src="https://github.com/user-attachments/assets/2643b83a-f5ee-41d3-a3d9-79f1d0a9cd95" />
